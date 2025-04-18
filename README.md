@@ -1,5 +1,5 @@
 
-# Privacy Policy for huhloWave
+# Privacy Policy 
 
 Last updated: April 12, 2025
 
